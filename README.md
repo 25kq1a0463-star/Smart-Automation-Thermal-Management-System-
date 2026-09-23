@@ -1,1 +1,0 @@
-# Smart-Automation-Thermal-Management-System-
